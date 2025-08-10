@@ -5,7 +5,7 @@
 
 ### Место для мудрости
 
-**"Chiunque l'abbia tradotto è un leccaculo." - Alfredo 
+**"Chiunque l'abbia tradotto è un leccaculo." - Alfredo**
 
 
 
